@@ -1,6 +1,7 @@
-**Scholistico Review: Is the Art Therapy Course Good OR Not?**
+Scholistico Review: Is the Art Therapy Course Good?
+===================================================
 
-This is my in-depth review of Scholistico Art Therapy Certification Course.
+This is an in-depth review of Scholistico Art Therapy Certification Course.
 
 [Scholistico](https://scholistico.com/ref/122/) is an online platform that offers accredited courses in holistic health and wellness, designed for people who want to deepen their skills in well-being and personal growth. 
 
